@@ -1,4 +1,3 @@
 # School Days :star:
-
-
-Hello I am Harsh! Trying to spoil it for you! HEHEHEHHEHEHEHE
+- Are the awesome days
+- Remembering them....
